@@ -105,7 +105,8 @@ I like horror stories movie anime and games,i play Sally Face,Manny's,IDV,CSGO,C
 
 For idv, am a noob, even though I played for 6years
 
-![Uploading ZFG59]3OEEYC@_15@AVU87O_tmb.jpg…]()
+
+![ZFG59 3OEEYC@_15@AVU87O_tmb](https://github.com/Pls-Kill-Alex/Meow/assets/170142352/a8c05de7-522c-465c-b9a8-5ae56f73907e)
 
 
 
