@@ -74,7 +74,7 @@ most of time i with my friends afk and making skins, sorry for if i didnt saw in
 I like horror stories movie anime and games,i play Sally Face,Manny's,IDV,CSGO,CF,Onmyoji,MC,That's not my neighbor.
 
 
-I'm actually a very dark person irl.
+I'm actually a very rude and dark person.
 
 ♡I have a lot of negative energy, and if I tell you about me, it's because I trust you and I want to be close with  you, not because I want to get sympathy or use you as an emotional garbage can... no one wants to tear their scars open for someone to see. But if you mind that, you can tell me.♡
 
