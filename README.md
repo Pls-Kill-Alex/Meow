@@ -43,7 +43,10 @@ WeChat：Yejiu__yyjd
 
 2. About friends:
 
-   ◆I don't want to be boring, but I can't understand a lot of memes because I can't use tiktok. Sorry for that.
+♡be my long-term friend,  know my spirit world՞˶˃ ᵕ ˂˶՞
+
+
+◆I don't want to be boring, but I can't understand a lot of memes because I can't use tiktok. Sorry for that.
 
 I like to joke. I joke with you because I think you're a friend. But if my joke hurt to you, tell me!◆
 
@@ -64,6 +67,8 @@ I'm not friends with mutes... but I'm sorry I'm mute myself a lot of times👉�
 
  I find it awkward for my friends to see me introduce myself bth 👉👈
 
+i like to share my everything!!!
+
 most of time i with my friends afk and making skins, sorry for if i didnt saw interaction, not because am rude.
 
 I like horror stories and games,i play Sally Face,Manny's,IDV,CSGO,CF,Onmyoji,MC
@@ -77,7 +82,7 @@ I'm happy that my friends vent their negative feelings to me. I really want to h
 
 So , in general, what I've konw about myself so far is that i have moderate bipolar disorder and mild somatization, and most of the time I'm very happy and excited, but sometimes there's a period of depression, and if I looks like careful with you, don't worry, it's not your fault. If that happens, I'll only have the strength to interact with my friends
 
-I'm working hard to make money for the psychiatrist... please don't say any hurtful things about these 😥orz
+I'm working hard to make money for psychiatrist and sertraline...so please don't say any hurtful things about these 😥orz
 
 I always like to talk nonsense, like this↑ lmaoo
 
