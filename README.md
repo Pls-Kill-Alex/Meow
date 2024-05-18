@@ -14,6 +14,7 @@ My qq number：2584310882
 WeChat：Yejiu__yyjd
 
 --About me--
+
 1.DNI:
 
 I don't like people who deny history,
