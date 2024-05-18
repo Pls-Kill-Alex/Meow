@@ -15,11 +15,12 @@ WeChat：Yejiu__yyjd
 
 --About me--
 1.DNI:
+
 I don't like people who deny history,
 I don't like racists.
 I don't like 《My Hero Academia》so please don't talk to me about how much you like it，and don't use cos skins in front of me.
 I don't like people who are rude to me before they become friends,
-I don't like the emoji '' 
+I don't like the emoji '😅' 
 
 2. About friends:
 I don't want to be boring, but I can't understand a lot of memes because I can't use tiktok. Sorry for that.
