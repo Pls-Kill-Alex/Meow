@@ -71,7 +71,7 @@ i like to share my everything!!!
 
 most of time i with my friends afk and making skins, sorry for if i didnt saw interaction, not because am rude.
 
-I like horror stories and games,i play Sally Face,Manny's,IDV,CSGO,CF,Onmyoji,MC
+I like horror stories movie anime and games,i play Sally Face,Manny's,IDV,CSGO,CF,Onmyoji,MC,That's not my neighbor.
 
 
 I'm actually a very dark person irl.
