@@ -6,7 +6,7 @@ Something about Alex
       -Alexxx-
 He/she/it, Asian. infp ♊
 
-I'm old enough to smoke and drink. ⌯ᐢᗜᐢ⌯ಣ（i very like emoji and memes！！！）
+I'm old enough to smoke and drink. ⌯ᐢᗜᐢ⌯ಣ
 
 ![I2WJKD@D}S832F({{{ WILC_tmb](https://github.com/Pls-Kill-Alex/Meow/assets/170142352/2f9b7236-53e5-4183-8673-723659e5965f)
 
@@ -76,7 +76,7 @@ Because i can't use discord and tele, if you want to contact me, you need to dow
 ![7SZ3P{)(%V4G@F$$7{0IW5_tmb](https://github.com/Pls-Kill-Alex/Meow/assets/170142352/2ae9ee1c-1349-4706-b60e-db760d1f99fb)
 
 
-I'm not friends with mutes... but I'm sorry I'm mute myself a lot of times👉👈
+If we have a problem, I hope we can communicate and resolve it。I'm not friends with mutes... but I'm sorry I'm mute myself a lot of times👉👈
 
 ![_B{)`7$%MUI@4J)(RY@ER)7_tmb](https://github.com/Pls-Kill-Alex/Meow/assets/170142352/c1a419c4-a8f3-439c-8071-48ee0e8b34cd)
 
@@ -98,6 +98,8 @@ i like to share my everything!!!
 
 
 I like horror stories movie anime and games,i play Sally Face,Manny's,IDV,CSGO,CF,Onmyoji,MC,That's not my neighbor.
+
+For idv, am a noob, even though I played for 6years
 
 
 
@@ -138,3 +140,5 @@ ohhh btw about my art？？here！！
 ![K9W IQP$CP){KG_XJAXQ`Y_tmb](https://github.com/Pls-Kill-Alex/Meow/assets/170142352/a3f693ca-3960-401b-b9bf-7e616793e6e1)
 
 ![0FQYXH LMG 5K($2{4T%_)L_tmb](https://github.com/Pls-Kill-Alex/Meow/assets/170142352/f8eae901-4be8-4ab2-a4c4-17f5c84e0634)
+
+（I very like emoji ， memes and nonsense ！！！）
