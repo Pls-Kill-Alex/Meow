@@ -52,6 +52,7 @@ I like to joke. I joke with you because I think you're a friend. But if my joke 
 Forgive me if I have no reason to be away from society for a while, I just don't want my emotions to hurt my friends
 
 I like to cling to my friends. I like hug and rub. If you're upset, I'll be a master of doughnuts.（Knead，rub, hug）
+
 Because i can't use discord and tele, if you want to contact me, you need to download the software that can contact me. Sorry for the trouble,so I thank my friends for this!!!
 
 I'm not friends with mutes... but I'm sorry I'm mute myself a lot of times👉👈
