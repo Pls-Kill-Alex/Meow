@@ -8,7 +8,7 @@ Something about Alex
  ₍˄·͈༝·͈˄*₎◞ ̑̑  
 
       -Alexxx-
-He/she/it, Asian. infp ♊
+HE/SHE/IT, Asian. infp ♊
 
 I'm old enough to smoke and drink. ⌯ᐢᗜᐢ⌯ಣ
 
@@ -28,7 +28,7 @@ Some of the basics:
 ![E%P)O U@BYC`GDK1EI D57W_tmb](https://github.com/Pls-Kill-Alex/Meow/assets/170142352/509268e3-2b3d-4595-b776-33265bac0144)
 
 
-♡if you have QQ and WeChat, thats great！♡
+♡If you have QQ and WeChat, thats great！♡
 
 My qq number：2584310882
 
