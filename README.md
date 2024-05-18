@@ -1,5 +1,8 @@
 # Meow
 
+![~6(MQ0 ()39 4SWKIP5 B3P_tmb](https://github.com/Pls-Kill-Alex/Meow/assets/170142352/5d6dca6c-5861-415f-8a4c-46021ca9160f)
+
+
 Something about Alex
 
  ₍˄·͈༝·͈˄*₎◞ ̑̑  
@@ -102,6 +105,7 @@ I like horror stories movie anime and games,i play Sally Face,Manny's,IDV,CSGO,C
 
 For idv, am a noob, even though I played for 6years
 
+![_CUSGUAA_U}73PPJX(_JZYU_tmb](https://github.com/Pls-Kill-Alex/Meow/assets/170142352/9451758a-11b6-4675-8bd0-3dbddde5effa)
 
 
 I'm actually a very rude and dark person.
