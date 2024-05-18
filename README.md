@@ -58,4 +58,3 @@ I'm working hard to make money for the psychiatrist... please don't say anything
 I always like to talk nonsense, like this↑ lmaoo
 
 That's all I'm up for givin y'all, hope your curiosity's been sated^^
-
