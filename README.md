@@ -148,4 +148,4 @@ ohhh btw about my art？？here！！
 
 ![0FQYXH LMG 5K($2{4T%_)L_tmb](https://github.com/Pls-Kill-Alex/Meow/assets/170142352/f8eae901-4be8-4ab2-a4c4-17f5c84e0634)
 
-（I very like emoji ， memes and nonsense ！！！）
+（I very like emoji ， memes and nonsense ！！！lmaooo）
