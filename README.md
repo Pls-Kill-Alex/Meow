@@ -48,13 +48,10 @@ WeChat：Yejiu__yyjd
 
 ◆I don't want to be boring, but I can't understand a lot of memes because I can't use tiktok. Sorry for that.
 
-I like to joke. I joke with you because I think you're a friend. But if my joke hurt to you, tell me!◆
+if my joke hurt to you, tell me!◆
 
 ♡All I'm doing is trying to make my friends happy, I'd rather we have a relationship going both ways, not that I'm just your clown, and I'd really slap you for it.♡
 
-Forgive me if I have no reason to be away from society for a while, I just don't want my emotions to hurt my friends
-
-I like to cling to my friends. I like hug and rub. If you're upset, I'll be a master of doughnuts.（Knead，rub, hug）
 
 Because i can't use discord and tele, if you want to contact me, you need to download the software that can contact me. Sorry for the trouble,so I thank my friends for this!!!
 
@@ -69,7 +66,6 @@ I'm not friends with mutes... but I'm sorry I'm mute myself a lot of times👉�
 
 i like to share my everything!!!
 
-most of time i with my friends afk and making skins, sorry for if i didnt saw interaction, not because am rude.
 
 I like horror stories movie anime and games,i play Sally Face,Manny's,IDV,CSGO,CF,Onmyoji,MC,That's not my neighbor.
 
