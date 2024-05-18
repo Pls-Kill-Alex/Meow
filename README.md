@@ -1,5 +1,6 @@
 # Meow
 Something about Alex
+
       -Alexxx-
 He/she/it, Asian infp 
 I'm old enough to smoke and drink.
@@ -9,6 +10,7 @@ I know my English sucks. I'm trying to get better.
 I can't use discord， tele and many other apps so far，Sorry～～
 I even seem to be playing Pony town illegally（（
 I really want to be a supporter for my skin!! But I can't use Patreon... > <
+
 if you have QQ and WeChat, thats great！
 My qq number：2584310882
 WeChat：Yejiu__yyjd
@@ -17,11 +19,11 @@ WeChat：Yejiu__yyjd
 
 1.DNI:
 
-I don't like people who deny history,
-I don't like racists.
-I don't like 《My Hero Academia》so please don't talk to me about how much you like it，and don't use cos skins in front of me.
-I don't like people who are rude to me before they become friends,
-I don't like the emoji '😅' 
+I don't like people who deny history-
+I don't like racists-
+I don't like 《My Hero Academia》so please don't talk to me about how much you like it，and don't use cos skins in front of me-
+I don't like people who are rude to me before they become friends-
+I don't like the emoji '😅'-
 
 2. About friends:
 I don't want to be boring, but I can't understand a lot of memes because I can't use tiktok. Sorry for that.
@@ -37,6 +39,7 @@ I'm not friends with mutes... but I'm sorry I'm mute myself a lot of times!!!!
 My friends saved my life. I love them very much. I really appreciate everything.
 
 3. About myself:
+
 I respect any group
 
 I only release this tag when I'm alone because I find it awkward for my friends to see me introduce myself。XD
@@ -51,6 +54,8 @@ I'm happy that my friends vent their negative feelings to me. I really want to h
 
 So, in general, what I've learned about myself so far is that I'm bipolar and somatized, and most of the time I'm very excited, but sometimes there's a period of depression, and I might be careful with you, don't worry, it's not your fault. If that happens, I'll only have the strength to interact with my friends
 I'm working hard to make money for the psychiatrist... please don't say anything about these hurtful things orz
+
 I always like to talk nonsense, like this↑ lmaoo
+
 That's all I'm up for givin y'all, hope your curiosity's been sated^^
 
