@@ -38,7 +38,7 @@ WeChat：Yejiu__yyjd
 
 ●I don't like people who are rude to me before they become friends-
 
-●I don't like the emoji '😅'-
+●I don't like this emoji '😅'-
 
 
 2. About friends:
