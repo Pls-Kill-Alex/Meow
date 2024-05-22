@@ -128,7 +128,7 @@ I'm happy that my friends vent their negative feelings to me. I really want to h
 
 So , in general, what I've konw about myself so far is that i have moderate bipolar disorder and mild somatization, and most of the time I'm very happy and excited, but sometimes there's a period of depression, and if I looks like careful with you, don't worry, it's not your fault. If that happens, I'll only have the strength to interact with my friends
 
-I'm working hard to make money for psychiatrist and sertraline...so please don't say any hurtful things about these 😥orz
+I'm working hard to make money for psychiatrist and quetiapine fumarate tablets...so please don't say any hurtful things about these 😥orz
 
 I always like to talk nonsense, like this↑ lmaoo
 
